@@ -7,5 +7,5 @@
 ## What you’ll learn -
 Will attain a deeper understanding of themselves and others. Will be learning how to analyze a handwriting.
 
-## Why you shall learn this-
+## Why you should learn this-
 This notes is more than just analysing handwriting, it is more about analysing your own self, finding new realisations that you have never had before, releasing yourself completely and exploring an improved self.
